@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AntonioMendoncca
+- 👷🏻 I'm begginer
+- 🌍 I'm from Brazil
+- 👀 I’m interested in games, lifting and make money
+- 🌱 I’m currently learning python fundamental
+- 💞️ I’m looking for experience
+- 📫 How to reach me deephumanlearning@gmail.com   
